@@ -1,3 +1,1 @@
-# COMP1531
-My ducuments in comp1531
-A proeject to store my codes in COMP1531 course
+If you copy those code to your homework, you will DEFINITELY be punished for plagiarism. ... you will DEFINITELY be punished for plagiarism. comp1531 unsw.
